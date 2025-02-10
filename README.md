@@ -7,7 +7,7 @@ I am an enthusiastic Software Engineer, driven by a desire to learn and improve 
 
 💼 My projects, which reflect a blend of experience and innovation, are available on [GitHub](https://github.com/migAen).
 
-📩 Feel free to reach out to me at: migueltm198@hotmail.com
+📩 Feel free to reach out to me at: miguelaenloz@gmail.com
 
 ---
 
